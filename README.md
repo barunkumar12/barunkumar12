@@ -17,7 +17,7 @@ Programing Language and FrameWork.
 
 ---
 
-* Born and rised in Bihar .  I moved to Kerala for my Post Graduation (MCA) Now  I am Pursuing which is likely to be completed in 2023.
+* I was born and raised in Bihar. I moved to Kerala for my post-graduation in MCA, which I am currently pursuing and expected to complete in 2023.
 * One Key Attribute in me is -learning with patience.
 * I worked on myself to make a better version of me.
 * I am a bit shy person :relaxed: .
